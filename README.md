@@ -8,7 +8,7 @@
 
 - 💬 Ask me anything related to cyber-security. I will be more than happy enough to answer if I know
 
-- 📫 How to reach me **Discord: c48.scorpion**
+- 📫 Reach me at: **Discord: c48.scorpion**
 
 - ⚡ Fun fact **Besides engaging in cyber security, I am also a commando for my country. Airborne All The Way! Death From Above**
 
